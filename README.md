@@ -1,9 +1,12 @@
 # Growth Mindset Pro
 **1/ Thế nào là** ***tư duy?*** 
 
+![Tư Duy Là Gì?](https://c3nguyentatthanhhp.edu.vn/wp-content/uploads/2023/03/Tu-duy-la-gi-Vi-du-ve-tu-duy.jpg)
+
 Trong cuộc sống, chúng ta sử dụng khá nhiều từ "tư duy". Tuy nhiên, không phải ai cũng hiểu được định nghĩa của "tư duy". Tư duy là từ dùng để chỉ những hoạt động của tinh thần, đem những cảm giác sửa đổi và cải tạo thế giới thông qua hoạt động vật chất, làm cho con người có nhận thức đúng đắn về sự vật xung quanh và đưa ra cách ứng xử với các sự vật, sự việc đó. Dưới góc độ sinh lý học, tư duy được biết đến là một hình thức hoạt động của hệ thần kinh thể hiện qua việc tạo ra những liên kết giữa các phần tử đã ghi nhớ, chọn lọc và kích thích chúng hoạt động để thực hiện sự nhận thức về thế giới xung quanh, từ đó định hướng cho hành vi phù hợp với tình huống thực tế. Dưới góc độ tâm lý học, tư duy là một quá trình tâm lý phản ánh những thuộc tính, bản chất, những mối liên hệ và quan hệ bên trong có tính quy luật của sự vật và hiện tượng trong hiện thực khách quan.
 
 Quá trình này có một mức độ nhận thức cao hơn so vơi cảm giác và tri giác. Khác với các giác quan, tư duy phản ánh những thuộc tính bên trong, bản chất những mối liên hệ, quan hệ có tính quy luật của sự vật, hiện tượng. Quá trình phản ánh này mang tính gián tiếp và khái quát, nảy sinh trên cơ sở hoạt động thực tiễn, từ sự nhận thức cảm tính nhưng vượt xa giới hạn của nhận thức cảm tính. Quá trình tư duy bao gồm nhiều giai đoạn, từ khi cá nhân gặp những tình huống có vấn đề và nhận thức vấn đề, đến khi đưa ra cách giải quyết vấn đề. Đó là các giai đoạn: Tiếp nhận vấn đề, xuất hiện và sàng lọc cách giải quyết, giải quyết nhiệm vụ tư duy.
+
 **2/ Đặc điểm của tư duy**
 - Tính có vấn đề của tư duy
 
@@ -20,6 +23,7 @@ Trừu tượng và khái quát của tư duy có mối liên hệ mật thiết
 - Tư duy gắn liền với ngôn ngữ
 
 Ngôn ngữ đóng vai trò quan trọng, là công cụ để diễn đạt kết quả của quá trình tư duy. Vì vậy, để chủ thể và người khác tiếp nhận kết quả của quá trình tư duy như dự đoán, khái niệm,... về các sự vật, sự việc thì cần phải có ngôn ngữ. Ngôn ngữ mà chúng ta đang sử dụng hiện nay cũng chính là kết quả của quá trình phát triển tư duy lâu dài trong lịch sử nhân loại.  Nếu không có tư duy thì ngôn ngữ không thể xuất hiện và nếu không có ngôn ngữ thì quá trình tư duy sẽ không được thể hiện ra ngoài. Ví dụ: khi tư duy bài toán thì phải sử dụng các công thức, kí hiệu, khái niệm được biểu hiện dưới dạng ngôn ngữ.
+
 **3/ Vai trò của tư duy**
 
 Kỹ năng tư duy đóng vai trò quan trọng trong hoạt động nhận thức và hoạt động thực tiễn của con người. Tư duy giúp con người nhận thức được quy luật khách quan, từ đó có thể dự đoán một cách khoa học xu hướng phát triển của các sự vật, sự việc, đồng thời có kế hoạch, phương pháp cải tạo hiện thực khách quan. Ngoài ra, tư duy giúp con người thu thập, phân tích và sử dụng thông tin một cách hữu ích, đưa ra phương hướng phù hợp để giải quyết vấn đề và phát triển bản thân.
