@@ -17,3 +17,21 @@ Tư duy con người không nhận thức thế giới một cách trực tiếp
 Trừu tượng là việc con người dùng trí óc để giữ lại những yếu tố quan trọng cho tư duy, đồng thời gạt bỏ đi những thứ không cần thiết. Khái quát là dùng tri thức hợp nhất những đối tượng khác nhau vào trong cùng một nhóm, dựa trên những thuộc tính, đặc điểm giống nhau.
 
 Trừu tượng và khái quát của tư duy có mối liên hệ mật thiết với mức độ cao, không có trừu tượng thì con người không thể bắt đầu tiến hành khái quát, có trừu tượng mà không có khái quát thì hạn chế về quá trình tiếp nhận sự hiểu biết về vấn đề, sự vật và hiện tượng,... Nhờ có tính trừu tượng và khái quát của tư duy con người không chỉ giải quyết được những nhiệm vụ hiện tại mà có thể giải quyết được những nhiệm vụ của tương lai. Ví dụ: Nói về khái niệm "cái cốc", con người trừu xuất những thuộc tính không quan trọng như chất liệu, kiểu dáng mà chỉ giữ lại những thuộc tính cần thiết như: hình trụ, tính năng của cái cốc. Đó là trừu tượng.
+- Tư duy gắn liền với ngôn ngữ
+
+Ngôn ngữ đóng vai trò quan trọng, là công cụ để diễn đạt kết quả của quá trình tư duy. Vì vậy, để chủ thể và người khác tiếp nhận kết quả của quá trình tư duy như dự đoán, khái niệm,... về các sự vật, sự việc thì cần phải có ngôn ngữ. Ngôn ngữ mà chúng ta đang sử dụng hiện nay cũng chính là kết quả của quá trình phát triển tư duy lâu dài trong lịch sử nhân loại.  Nếu không có tư duy thì ngôn ngữ không thể xuất hiện và nếu không có ngôn ngữ thì quá trình tư duy sẽ không được thể hiện ra ngoài. Ví dụ: khi tư duy bài toán thì phải sử dụng các công thức, kí hiệu, khái niệm được biểu hiện dưới dạng ngôn ngữ.
+**3/ Vai trò của tư duy**
+
+Kỹ năng tư duy đóng vai trò quan trọng trong hoạt động nhận thức và hoạt động thực tiễn của con người. Tư duy giúp con người nhận thức được quy luật khách quan, từ đó có thể dự đoán một cách khoa học xu hướng phát triển của các sự vật, sự việc, đồng thời có kế hoạch, phương pháp cải tạo hiện thực khách quan. Ngoài ra, tư duy giúp con người thu thập, phân tích và sử dụng thông tin một cách hữu ích, đưa ra phương hướng phù hợp để giải quyết vấn đề và phát triển bản thân.
+
+**4/ Cách phát triển tư duy**
+
+Trong cuộc sống, việc dạy trẻ tư duy bậc cao cũng quan trọng như cách dạy trẻ tập đi, tập nói. Làm thế nào để trẻ biết cách tư duy sáng tạo, rèn luyện khả năng tư duy khi gặp những vấn đề mới thay vì dạy cho trẻ suy nghĩ theo lối mòn, học thuộc những kiến thức cũ rích. Bởi thế giới luôn thay đổi và phát triển, nếu tư duy không phát triển thì không thể thích nghi với sự biến động của xã hội.
+
+Khả năng suy nghĩ và mở rộng vấn đề chính là kỹ năng tư duy bậc cao. Điều này không sinh ra một cách tự nhiên mà nó xuất hiện trong quá trình học tập và rèn luyện. Trí thông minh bẩm sinh của mỗi người là khác nhau, nhưng khả năng tư duy bậc cao có thể phát triển thông qua quá trình con người suy nghĩ logic, sáng tạo, biết giải quyết vấn đề, đưa ra quyết định cũng như có những ý tưởng mới, khả năng xử lý, phân tích thông tin và lên kế hoạch cho tương lai của mình. Như vậy, phát triển tư duy cần phải gắn liền với thực tiễn và thực hành.
+
+Một số cách có thể phát triển tư duy mỗi ngày:
+- **Xử lý thông tin:** Tìm những thông tin có liên quan, xâu chuỗi và sắp xếp có hệ thống để tiếp nhận thông tin hiệu quả nhất.
+- **Đánh giá vấn đề:** Học cách áp dụng các tiêu chí, xây dựng tiêu chí đánh giá các thông tin được tiếp nhận.
+- **Lập luận:** Rèn luyện khả năng đưa ra ý tưởng mới, tìm kiếm giải pháp sáng tạo và đổi mới
+- **Đặt câu hỏi:** Luyện tập khả năng đặt câu hỏi, lật ngược vấn đề là cách để phát triển tư duy bậc cao hơn mà mỗi người nên luyện tập để mở rộng vấn đề.
