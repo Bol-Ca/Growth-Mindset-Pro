@@ -48,5 +48,7 @@ Một số cách có thể phát triển tư duy mỗi ngày:
 
 ### Contact advertising
 
-- **Facebook** : https://www.facebook.com/abcxyzz
+- **Facebook:** https://www.facebook.com/abcxyzz
+- **Phone Number:** 094xxxxxxx
+- **Zalo:**: 094xxxxxx
 
