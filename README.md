@@ -44,3 +44,9 @@ Một số cách có thể phát triển tư duy mỗi ngày:
 - **Đặt câu hỏi:** Luyện tập khả năng đặt câu hỏi, lật ngược vấn đề là cách để phát triển tư duy bậc cao hơn mà mỗi người nên luyện tập để mở rộng vấn đề.
 
 [*Xem thêm* **9 phương pháp rèn luyện, phát triển tư duy...**](https://careerbuilder.vn/vi/talentcommunity/9-phuong-phap-ren-luyen-tu-duy.35A4F288.html)
+
+
+### Contact advertising
+
+- **Facebook** : https://www.facebook.com/abcxyzz
+
