@@ -1,6 +1,7 @@
 # Growth Mindset Pro
 **1/ Thế nào là** ***tư duy?*** 
 
+& Chuồn
 ![Tư Duy Là Gì?](https://c3nguyentatthanhhp.edu.vn/wp-content/uploads/2023/03/Tu-duy-la-gi-Vi-du-ve-tu-duy.jpg)
 
 Trong cuộc sống, chúng ta sử dụng khá nhiều từ "tư duy". Tuy nhiên, không phải ai cũng hiểu được định nghĩa của "tư duy". Tư duy là từ dùng để chỉ những hoạt động của tinh thần, đem những cảm giác sửa đổi và cải tạo thế giới thông qua hoạt động vật chất, làm cho con người có nhận thức đúng đắn về sự vật xung quanh và đưa ra cách ứng xử với các sự vật, sự việc đó. Dưới góc độ sinh lý học, tư duy được biết đến là một hình thức hoạt động của hệ thần kinh thể hiện qua việc tạo ra những liên kết giữa các phần tử đã ghi nhớ, chọn lọc và kích thích chúng hoạt động để thực hiện sự nhận thức về thế giới xung quanh, từ đó định hướng cho hành vi phù hợp với tình huống thực tế. Dưới góc độ tâm lý học, tư duy là một quá trình tâm lý phản ánh những thuộc tính, bản chất, những mối liên hệ và quan hệ bên trong có tính quy luật của sự vật và hiện tượng trong hiện thực khách quan.
